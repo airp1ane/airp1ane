@@ -1,0 +1,1 @@
+design, crypto, travel, vegan 😎
